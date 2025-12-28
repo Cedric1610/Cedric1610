@@ -15,6 +15,7 @@ Dashboards and productivity templates, and sharing daily-use Google Sheets templ
 ⚡ Fun Facts
 
 I am a
+
 🏃 Sporty and enjoy playing almost every kind of sport
-and
-🌱 Self-learner, currently studying Spanish (· 🇪🇸 Big fan of Spanish cultur 
+
+🌱 Self-learner, currently studying Spanish (· 🇪🇸 Big fan of Spanish culture)
