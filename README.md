@@ -13,5 +13,8 @@ Advanced Google Sheets · SQL · Power BI · Python (basis for analysis and curr
 Dashboards and productivity templates, and sharing daily-use Google Sheets templates on Simplate (TikTok).
 
 ⚡ Fun Facts
-🏃 Sporty and enjoy playing almost every kind of sport · 
+
+I am a
+🏃 Sporty and enjoy playing almost every kind of sport
+and
 🌱 Self-learner, currently studying Spanish (· 🇪🇸 Big fan of Spanish cultur 
